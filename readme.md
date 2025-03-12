@@ -1,0 +1,1 @@
+Ky eshte nje pershkrim i projektit 📲
